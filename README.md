@@ -1,3 +1,3 @@
 # Example repo
 
-![](https://preview.redd.it/g3uqy8ysy4n71.gif?format=mp4&s=e4b2bdde87fffbe94a3b6a131d56ef63bc58b036)
+https://user-images.githubusercontent.com/892048/133063023-0e19f3df-aeb5-4df6-b022-bb0e932bd8cd.mp4
